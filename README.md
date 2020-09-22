@@ -1,2 +1,2 @@
 # RESUME
-My Resume, updated till 28th July 2020
+My Resume, updated till 22th September 2020
